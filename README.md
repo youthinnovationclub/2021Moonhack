@@ -6,6 +6,8 @@ Date: June 28th 2021
 Scratch Projects
 Python Projects
 
+https://youtu.be/Gcr_v4sm_KE
+
 After seminar, there are five students submit the projects
 
 Nature Returns (remix)                    Kevin
